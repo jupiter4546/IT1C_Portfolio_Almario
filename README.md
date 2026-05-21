@@ -24,5 +24,5 @@
 <br>
 
 ### 🦾 our motivationals qoutes
-Don't stop hanggat hindi kapa masarap
+Don't stop hangga't hindi kapa masarap
 
